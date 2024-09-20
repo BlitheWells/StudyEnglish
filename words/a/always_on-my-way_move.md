@@ -1,5 +1,5 @@
 Every morning, on my way to school. I always sit in the same seat. But this morning a big kid took my seat.
-	"Execuse me." I said, "You're sitting in my seat."
+	"Excuse me." I said, "You're sitting in my seat."
 	The big kid didn't move. I guess he didn't hear me.
 
 **always**
